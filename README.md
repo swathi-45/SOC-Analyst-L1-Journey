@@ -1,1 +1,0 @@
-# SOC-Analyst-L1-Journey
